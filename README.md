@@ -1,2 +1,2 @@
-# 9b
-;0
+aide ramis 
+az sum ramis i zahlupvam kufraji
